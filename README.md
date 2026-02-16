@@ -2,6 +2,7 @@
 
 I'm a member of FIRST Tech Challenge team 16468 Green Lemons situated in Kennett Square, PA in the UCF school district. DM me on [discord](https://discord.com/users/698924819487391744) with any questions.
 
+[Socials](https://guns.lol/oily.beans)
 <!--
 **VeldoraTempest16468/VeldoraTempest16468** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
